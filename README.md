@@ -1,6 +1,6 @@
 README Rafael22008
 - 👋 Hi, I'm @Rafael22008
-- Currently learning Pascal and Python.
+- Currently learning (idk).
 - I'm interested in learning more types of codes
 - I'm looking to collaborate on: I'm still 16, I think I cant collaborate anywhere rn.
 - How to reach me?
